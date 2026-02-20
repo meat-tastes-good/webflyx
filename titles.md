@@ -6,4 +6,3 @@
 - The Big Short
 - 12 Monkeys
 - The Curious Case Of Benjamin Button
-- Willow, Ron Howard, 1988
